@@ -1,1 +1,1 @@
-# Aassessment-VinodNaphade_maizzleFramework
+# Assessment-VinodNaphade_maizzleFramework
